@@ -13,7 +13,7 @@ Discord:
 https://discord.gg/WCsugqQupZ
 
 Webhook Spam 😂
-![image](https://github.com/user-attachments/assets/3d5d01a0-a942-49f7-a879-8bdb86f2ab48)
+![image](https://github.com/user-attachments/assets/31718ae7-245a-4ac0-92b1-2b8d9030e94e)
 
 
 Webhook Multi tool:
